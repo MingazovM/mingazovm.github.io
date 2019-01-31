@@ -1,1 +1,0 @@
-# mingazovm.github.io
