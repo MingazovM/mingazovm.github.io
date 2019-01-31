@@ -1,1 +1,0 @@
-hrrps://mingazovm.github.io
