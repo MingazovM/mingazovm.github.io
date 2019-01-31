@@ -1,1 +1,1 @@
-mingazovm.github.io
+hrrps://mingazovm.github.io
