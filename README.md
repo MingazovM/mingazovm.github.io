@@ -1,1 +1,1 @@
-# [Mingazov Mikhail - project DH](https://mingazovm.github.io/index.html)
+# [Mingazov Mikhail - project DH] (https://mingazovm.github.io/index.html)
